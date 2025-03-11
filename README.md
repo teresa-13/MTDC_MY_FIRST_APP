@@ -1,1 +1,0 @@
-# MTDC_MY_FIRST_APP
